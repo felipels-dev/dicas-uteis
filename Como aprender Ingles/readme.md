@@ -57,24 +57,42 @@ Existem vários aplicativos bem completos para estudar inglês. É o caso do **D
 
 
 - **Duolingo**
+
 - **Idiomus**
+
 - **British Council**
+
 - **Lingualeo**
+
 - [**Lingua.ly**](http://lingua.ly/)
+
 - **English Grammar in Use**
+
 - **Voxy**
+
 - **Hello English**
+
 - **Mosalingua**
+
 - **Rosetta Stone**
+
 - **Babbel**
+
 - **Mondly**
+
 - **Busuu**
+
 - **Cambly**
+
 - **Wlingua**
+
 - **Oxford Dictionary of English**
+
 - **Reverso**
+
 - **Dicionário Linguee**
-- 
+
+  
 
 Escolha um desses apps e se dedique ao “**plano de estudos**” dele. Ele vai ajudar você a desenvolver **vocabulário**, **escuta**, **gramática** e mais.
 
